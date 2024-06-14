@@ -1,0 +1,1 @@
+# shamelessly-ai-generated-inspiration
